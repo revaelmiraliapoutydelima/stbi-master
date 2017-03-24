@@ -1,2 +1,1 @@
-# stbi-master
-revael miralia p.d
+#legal retrieval
